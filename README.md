@@ -1,5 +1,5 @@
-			# María Natalia Benavides Sanabria
-				:blush:				
+# María Natalia Benavides Sanabria
+:blush:				
 
 ## 20232806-Equipo10
 
