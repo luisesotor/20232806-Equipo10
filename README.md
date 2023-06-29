@@ -1,5 +1,4 @@
-			#Luis Enrique Soto Reyes
-                                 :fofl:
+ 			# Luis Enrique Soto Reyes:fofl:
 
 
 # 20232806-Equipo10
