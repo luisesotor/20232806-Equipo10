@@ -1,4 +1,4 @@
 
 # 20232806-Equipo10
 
-Luis  Soto - Maria Benavides - Brayan Marcano
+Luis  Soto - Maria Benavides - Brayan Marcano - Jennifer de la Osa
